@@ -2,4 +2,4 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=dummyinbed&label=dummies&color=FF69B4&style=flat)
+![](https://komarev.com/ghpvc/?username=dummyinbed&label=bunnies&color=FF69B4&style=flat)
