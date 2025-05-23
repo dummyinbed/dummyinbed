@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=18&pause=1000&color=9DBCD4&width=435&lines=You're+so+Gullible%2C+Chance.;It's+quite+the+waste%2C+dont+you+think%3F)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=18&pause=1000&color=9DBCD4&background=A2F7FF1F&width=435&lines=You're+so+Gullible%2C+Chance.;It's+quite+the+waste%2C+dont+you+think%3F)](https://git.io/typing-svg)
 <div align="center">
 
 [Strawpage](https://doomslost.straw.page/) - [Pronounscc](https://pronouns.cc/@ElseifFall) - [Roblox](https://www.roblox.com/users/1022725107/profile) - [Space-Hey](https://spacehey.com/adore_x)
