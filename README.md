@@ -22,6 +22,8 @@
 
 [Strawpage](https://doomslost.straw.page/) - [Pronounscc](https://pronouns.cc/@ElseifFall) - [Roblox](https://www.roblox.com/users/1022725107/profile) - [Space-Hey](https://spacehey.com/adore_x)
 
+
+[New Strawpage](https://straw.page/draw?bio=hellojohndoez)
 <div align="center">
   
 ══════════════════════════════════════════════════════
