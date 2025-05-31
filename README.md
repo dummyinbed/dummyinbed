@@ -27,7 +27,7 @@
 <div align="center">
 
 
-[New Strawpage](https://straw.page/draw?bio=hellojohndoez)
+[New Strawpage](https://itrappedzblood.straw.page/)
 <div align="center">
   
 ══════════════════════════════════════════════════════
