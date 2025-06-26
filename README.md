@@ -27,7 +27,7 @@
 <div align="center">
 
 
-[New Strawpage](https://itrappedzblood.straw.page/)
+[ATABOOK](https://dummysblood.atabook.org/) - [RENTRY](https://rentry.co/dummyinbed)
 <div align="center">
   
 ══════════════════════════════════════════════════════
