@@ -23,6 +23,8 @@
 
 <div align="center">
 
+[BYI strawpage/info.](https://pa1nt3rss.straw.page/)
+
 [Strawpage](https://doomslost.straw.page/) - [Pronounscc](https://pronouns.cc/@ElseifFall) - [Roblox](https://www.roblox.com/users/1022725107/profile) - [Space-Hey](https://spacehey.com/adore_x)
 <div align="center">
 
