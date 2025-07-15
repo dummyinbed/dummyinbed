@@ -38,6 +38,3 @@ ALOO!! This person has taken a few of my skins +(gifted skin, or my friends skin
 ![image alt](https://github.com/dummyinbed/dummyinbed/blob/2c91764a51883b10d281cc0296afa0859d7b84d2/d.PNG)
 https://au.pinterest.com/angelsc0rpse_/_created/
 
-![image alt](https://github.com/dummyinbed/dummyinbed/blob/753a949b11687dc8a1241ea004643d36ccbb8f60/awwwwwwwwwwww.PNG)
-
-![image alt](https://github.com/dummyinbed/dummyinbed/blob/9e56695f65b16e2524a0383b333f9db69ca3f594/awwwww.PNG)
