@@ -34,7 +34,6 @@
   
 ══════════════════════════════════════════════════════
 
+https://au.pinterest.com/angelsc0rpse_/_created/
 ALOO!! This person has taken a few of my skins +(gifted skin, or my friends skins). If they do not have my github and or my friends github it is NOT us. Recommended to check if they have posted ur pony too, they often post ponies without permission ESPECIALLY if you're in the forsaken fandom/if you are cosplaying someone from forsaken..
 ![image alt](https://github.com/dummyinbed/dummyinbed/blob/2c91764a51883b10d281cc0296afa0859d7b84d2/d.PNG)
-https://au.pinterest.com/angelsc0rpse_/_created/
-
