@@ -4,7 +4,7 @@
 ───────────────────────── ♛ ─────────────────────────
 
 
-[DOCUMENT ON AGENT](https://docs.google.com/document/d/1xliq70-7Hy8zWCLvaBK7lQyXwJfD42OB0eaIVCdiogU/edit?usp=sharing)
+im genuinely fucking done dont talk to me bro harasssing me when im a kid is insanejust leave me alone
 
 <div align="center">
 
