@@ -4,7 +4,6 @@
 ───────────────────────── ♛ ─────────────────────────
 
 
-im genuinely fucking done dont talk to me bro harasssing me when im a kid is insanejust leave me alone
 
 <div align="center">
 
