@@ -1,6 +1,7 @@
 Hi oomfs so im probably gonna end up quiting due to some pointless drama LOL
 I love u all u can dm me @ adore_x
-I'll probably return a few months from now or smth depends
+
+UPDATE: ok nevermind idc anymore LOL but I probably will be active less
 
 ^ or I might just sit in other areas, depends how im feeling
 
