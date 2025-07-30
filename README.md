@@ -1,9 +1,3 @@
-Hi oomfs so im probably gonna end up quiting due to some pointless drama LOL
-I love u all u can dm me @ adore_x
-
-UPDATE: ok nevermind idc anymore LOL but I probably will be active less
-
-^ or I might just sit in other areas, depends how im feeling
 
 <div align="center">
 
