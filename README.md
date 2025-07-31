@@ -37,6 +37,7 @@
   
 ══════════════════════════════════════════════════════
 
+if u miss my old layout, I'll bring it back soon. I just got fixated on dsaf/day shift at freddys so this is just temporary. :-)
 ![image alt](https://github.com/dummyinbed/dummyinbed/blob/fbba67f808ff222e1b2680fb4356e0504e96773f/IMG_2155.jpg)
 
 https://au.pinterest.com/angelsc0rpse_/_created/
