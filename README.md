@@ -28,7 +28,7 @@
 <div align="center">
 
 
-[Strawpage](https://dayshiftatfreddyz.straw.page/) - [Pronounscc](https://pronouns.cc/@ElseifFall) - [Roblox](https://www.roblox.com/users/1022725107/profile) - [Space-Hey](https://spacehey.com/adore_x)
+[Strawpage](https://dayshiftatfreddyz.straw.page/) - [Pronounscc](https://pronouns.cc/@ElseifFall) - [Roblox](https://www.roblox.com/users/1022725107/profile)
 <div align="center">
 
 
