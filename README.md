@@ -32,7 +32,7 @@
 <div align="center">
 
 
-[ATABOOK](https://dummysblood.atabook.org/) - [RENTRY](https://rentry.co/dummyinbed)
+[ATABOOK](https://dummysblood.atabook.org/) - [RENTRY](https://rentry.co/dummyinbed) - [GUNSLOL](https://guns.lol/dummyinbed)
 <div align="center">
   
 ══════════════════════════════════════════════════════
