@@ -39,14 +39,6 @@
 
 ![image alt](https://media.discordapp.net/attachments/1028737434252488756/1414103984993599488/rfacism.png?ex=68be5a76&is=68bd08f6&hm=37c59441f48881e7de00ae5329952b624efc83e7f014d3d7773b282092f31c75&=&format=webp&quality=lossless&width=748&height=420)
 
-
-
-
 ![image alt](https://media.discordapp.net/attachments/1028737434252488756/1414104345489707049/image.png?ex=68be5acc&is=68bd094c&hm=29334f16ca39b5710bc26fbd9bf11e486e53d2b0fa7eb9ef1e20bb7c7f626c83&=&format=webp&quality=lossless&width=875&height=492)
 
-if u miss my old layout, I'll bring it back soon. I just got fixated on dsaf/day shift at freddys so this is just temporary. :-)
-![image alt](https://github.com/dummyinbed/dummyinbed/blob/fbba67f808ff222e1b2680fb4356e0504e96773f/IMG_2155.jpg)
-
-https://au.pinterest.com/angelsc0rpse_/_created/
-ALOO!! This person has taken a few of my skins +(gifted skin, or my friends skins). If they do not have my github and or my friends github it is NOT us. Recommended to check if they have posted ur pony too, they often post ponies without permission ESPECIALLY if you're in the forsaken fandom/if you are cosplaying someone from forsaken..
-![image alt](https://github.com/dummyinbed/dummyinbed/blob/2c91764a51883b10d281cc0296afa0859d7b84d2/d.PNG)
+![image alt](https://media.discordapp.net/attachments/1028737434252488756/1414105503167942749/image.png?ex=68be5be0&is=68bd0a60&hm=11a6594625c8cab3071517b33fa47663e3df5bc7774e78ae34c69dd665ec3335&=&format=webp&quality=lossless&width=831&height=466)
