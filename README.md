@@ -37,7 +37,12 @@
   
 ══════════════════════════════════════════════════════
 
-![image alt](https://media.discordapp.net/attachments/1028737434252488756/1414102590689382530/image.png?ex=68be592a&is=68bd07aa&hm=c0edee0c6fa2fe5646a3b1933ad0cda3046ad8b19062006baf88ba248e291d03&=&format=webp&quality=lossless&width=1504&height=846)
+![image alt](https://media.discordapp.net/attachments/1028737434252488756/1414103984993599488/rfacism.png?ex=68be5a76&is=68bd08f6&hm=37c59441f48881e7de00ae5329952b624efc83e7f014d3d7773b282092f31c75&=&format=webp&quality=lossless&width=748&height=420)
+
+
+
+
+![image alt](https://media.discordapp.net/attachments/1028737434252488756/1414104345489707049/image.png?ex=68be5acc&is=68bd094c&hm=29334f16ca39b5710bc26fbd9bf11e486e53d2b0fa7eb9ef1e20bb7c7f626c83&=&format=webp&quality=lossless&width=875&height=492)
 
 if u miss my old layout, I'll bring it back soon. I just got fixated on dsaf/day shift at freddys so this is just temporary. :-)
 ![image alt](https://github.com/dummyinbed/dummyinbed/blob/fbba67f808ff222e1b2680fb4356e0504e96773f/IMG_2155.jpg)
