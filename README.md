@@ -2,7 +2,7 @@
 <div align="center">
 
 
-════════════════════════════════════════════════════════════════════════════════════════
+═════════════════════════════════════════════════════════════════════════════════════
 
 $${\color{pink}I \space \color{pink} made \space \color{pink} a \space \color{lightblue}rentry map\space \color{pink},too \space \color{pink}lazy \space \color{lpink}to\space \color{pink} actually\space \color{pink} learn\space \color{pink} how\space \color{pink} \space \color{pink}to\space \color{pink}make\space \color{pink}a\space \color{pink}rentry\space \color{pink}though.{}}$$
 
