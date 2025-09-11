@@ -18,6 +18,8 @@ $${\color{pink}I \space \color{pink} made \space \color{pink} a \space \color{li
 
 ![](https://komarev.com/ghpvc/?username=dummyinbed&label=Dummies&color=ff69b4&style=flat)
 
+[MAIN RENTRY](https://rentry.co/partygoer)
+
 <div align="center">
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7A7C0&background=FFA8B400&width=435&lines=Escape%3F+This+is+your+home+silly!;Escaping+is+pointless%2C+you+dummy.)](https://git.io/typing-svg)
