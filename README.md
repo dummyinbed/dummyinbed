@@ -37,5 +37,3 @@ $${\color{pink}I \space \color{pink} made \space \color{pink} a \space \color{li
 <div align="center">
   
 ═══════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔════════════════
-
-[please cancel them](https://rentry.co/ct5n49e6)
