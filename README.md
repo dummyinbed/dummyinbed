@@ -38,4 +38,5 @@ $${\color{pink}I \space \color{pink} made \space \color{pink} a \space \color{li
   
 ═══════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔════════════════
 
+because I ran out of room all the way at the top, im gonna link all my oomfs down here as well because sometimes I forget. :-( , if youre not at the top or in the other link spaces it just means I either forgot to or ran out of space, take no offense :-(
 
