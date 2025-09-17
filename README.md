@@ -18,6 +18,7 @@ $${\color{pink}I \space \color{pink} made \space \color{pink} a \space \color{li
 
 ![](https://komarev.com/ghpvc/?username=dummyinbed&label=Dummies&color=ff69b4&style=flat)
 
+[new pronouns page](https://en.pronouns.page/@Dignitality)
 [MAIN RENTRY](https://rentry.co/partygoer)
 
 <div align="center">
