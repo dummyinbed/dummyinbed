@@ -34,7 +34,7 @@ $${\color{pink}I \space \color{pink} made \space \color{pink} a \space \color{li
 <div align="center">
 
 
-[ATABOOK](https://dummysblood.atabook.org/) - [RENTRY](https://rentry.co/dummyinbed) - [GUNSLOL](https://guns.lol/dummyinbed)
+[ATABOOK](https://dummysblood.atabook.org/) - [GUNSLOL](https://guns.lol/dummyinbed)
 <div align="center">
   
 ═══════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔════════════════
