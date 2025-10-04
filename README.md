@@ -10,6 +10,8 @@ $${\color{lightgreen}For \space \color{lightgreen} My \space \color{green} Last 
 ![image alt](https://media.discordapp.net/attachments/1028737434252488756/1423861578452963490/image.png?ex=68e1d9ee&is=68e0886e&hm=78b005268a305510984eb0560d9f54fafc244450df4de2205ef3b859ec0cd67c&=&format=webp&quality=lossless&width=1503&height=845)
 <div align="center">
 
+$${\color{green}hmph \space \color{lightgreen}... \space \space \color{green}good \space \color{lightgreen}...{}}$$
+
 ═══════════════════════════• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •═════════════════════════
 
 <div align="center">
