@@ -27,8 +27,7 @@ $${\color{green}hmph \space \color{lightgreen}... \space \space \color{green}goo
 
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7A7C0&background=FFA8B400&width=435&lines=Escape%3F+This+is+your+home+silly!;Escaping+is+pointless%2C+you+dummy.)](https://git.io/typing-svg)
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=14&pause=1000&color=6AF744&width=435&lines=You're+The+Reason+I+play+A+Game+I'm+Doomed+To+Lose.;In+My+File's+We're+Still+Alive+%2C)](https://git.io/typing-svg)
 
 
 <div align="center">
