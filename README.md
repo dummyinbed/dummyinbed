@@ -4,10 +4,10 @@
 
 ═════════════════════════════════════════════════════════════════════════════════════
 
-$${\color{pink}I \space \color{pink} made \space \color{pink} a \space \color{lightblue}rentry map\space \color{pink},too \space \color{pink}lazy \space \color{lpink}to\space \color{pink} actually\space \color{pink} learn\space \color{pink} how\space \color{pink} \space \color{pink}to\space \color{pink}make\space \color{pink}a\space \color{pink}rentry\space \color{pink}though.{}}$$
+$${\color{green}For \space \color{green} My \space \color{green} Last \space \color{green}Act \space \color{green},I \space \color{green}Love \space \color{red}You\space{}}$$
 
 
-![image alt](https://github.com/dummyinbed/dummyinbed/blob/227285bb514f417b23ca134d22ab47caa3acadcf/Untitled231_20250909170027.webp)
+![image alt](https://media.discordapp.net/attachments/1028737434252488756/1423861578452963490/image.png?ex=68e1d9ee&is=68e0886e&hm=78b005268a305510984eb0560d9f54fafc244450df4de2205ef3b859ec0cd67c&=&format=webp&quality=lossless&width=1503&height=845)
 <div align="center">
 
 ═══════════════════════════• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •═════════════════════════
@@ -16,7 +16,7 @@ $${\color{pink}I \space \color{pink} made \space \color{pink} a \space \color{li
 
 ✦⋆𓆩✧𓆪⋆✦
 
-![](https://komarev.com/ghpvc/?username=dummyinbed&label=Dummies&color=ff69b4&style=flat)
+![](https://komarev.com/ghpvc/?username=dummyinbed&label=Final_Countdown&color=green&style=flat)
 
 [new pronouns page](https://en.pronouns.page/@Dignitality)
 [MAIN RENTRY](https://rentry.co/partygoer)
