@@ -15,6 +15,7 @@ $${\color{green}hmph \space \color{lightgreen}... \space \space \color{green}goo
 ═══════════════════════════• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •═════════════════════════
 
 < [TopHat](https://github.com/sspacedoutz) 3
+[release the gubbies] why is my bf fa  -- FROM TOPHAT
 
 <div align="center">
 
@@ -31,8 +32,6 @@ $${\color{green}hmph \space \color{lightgreen}... \space \space \color{green}goo
 
 
 <div align="center">
-[release the gubbies] why is my bf fa  -- FROM TOPHAT
-
 
 [Strawpage](https://dayshiftatfreddyz.straw.page/) - [Pronounscc](https://pronouns.cc/@ElseifFall) - [Roblox](https://www.roblox.com/users/1022725107/profile)
 <div align="center">
