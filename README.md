@@ -24,7 +24,7 @@ $${\color{green}hmph \space \color{lightgreen}... \space \space \color{green}goo
 
 ![](https://komarev.com/ghpvc/?username=dummyinbed&label=Final_Countdown&color=green&style=flat)
 
-[new pronouns page](https://en.pronouns.page/@Dignitality)
+[UP TO DATE PRONOUNSCC](https://pronouns.cc/@AngelWithoutwings)
 [MAIN RENTRY](https://rentry.co/partygoer)
 
 <div align="center">
@@ -34,7 +34,7 @@ $${\color{green}hmph \space \color{lightgreen}... \space \space \color{green}goo
 
 <div align="center">
 
-[Strawpage](https://dayshiftatfreddyz.straw.page/) - [Pronounscc](https://pronouns.cc/@ElseifFall) - [Roblox](https://www.roblox.com/users/1022725107/profile)
+[Strawpage](https://dayshiftatfreddyz.straw.page/) - [Pronounscc](https://pronouns.cc/@AngelWithoutwingsl) - [Roblox](https://www.roblox.com/users/1022725107/profile)
 <div align="center">
 
 
