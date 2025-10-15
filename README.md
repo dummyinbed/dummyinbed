@@ -5,13 +5,13 @@
 
 ═════════════════════════════════════════════════════════════════════════════════════
 
-$${\color{red}Debi \space \color{red} tirar \space \color{red} mas  \space \color{red}fotos  \space \color{red},de  \space \color{red}cuando  \space \color{red}te \space \color{red}tuve{}}$$
+$${\color{white}Debi \space \color{white} tirar \space \color{white} mas  \space \color{white}fotos  \space \color{white},de  \space \color{white}cuando  \space \color{white}te \space \color{white}tuve{}}$$
 
 
 ![image alt](https://pbs.twimg.com/media/GzkhdlZXUAES1yr?format=jpg&name=medium)
 <div align="center">
 
-$${\color{red}Debi  \space \color{red} darte  \space \color{red} mas  \space \color{red}besos   \space \color{red},de  \space \color{red}y   \space \color{red}abrazos  \space \color{red}las \space \color{red}veces   \space \color{red}que \space \color{red}que {}}$$
+$${\color{white}Debi  \space \color{white} darte  \space \color{white} mas  \space \color{white}besos   \space \color{white},de  \space \color{white}y   \space \color{white}abrazos  \space \color{white}las \space \color{white}veces   \space \color{white}que \space \color{white}que {}}$$
 
 ═══════════════════════════• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •═════════════════════════
 
