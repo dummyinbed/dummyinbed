@@ -21,7 +21,7 @@ $${\color{white}Debi  \space \color{white} darte  \space \color{white} mas  \spa
 
 ✦⋆𓆩✧𓆪⋆✦
 
-![](https://komarev.com/ghpvc/?username=dummyinbed&label=VoidStars&color=red&style=flat)
+![](https://komarev.com/ghpvc/?username=dummyinbed&label=VoidStars&color=grey&style=flat)
 
 [PRONOUNSCC](https://pronouns.cc/@AngelWithoutwings) [STRAWPAGE up to date](https://2rings1pistol.straw.page/)
 
