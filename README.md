@@ -15,9 +15,7 @@ $${\color{red}Debi  \space \color{red} darte  \space \color{red} mas  \space \co
 
 ═══════════════════════════• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •═════════════════════════
 
-< [TopHat](https://github.com/sspacedoutz) 3
-
-[release the gubbies] why is my bf fa  -- FROM TOPHAT
+[Zuka](https://github.com/sspacedoutz)
 
 <div align="center">
 
@@ -44,8 +42,5 @@ $${\color{red}Debi  \space \color{red} darte  \space \color{red} mas  \space \co
 ═══════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔════════════════
 
 <div align="center">
-  
-═══════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔════════════════
 
-because I ran out of room all the way at the top, im gonna link all my oomfs down here as well because sometimes I forget. :-( , if youre not at the top or in the other link spaces it just means I either forgot to or ran out of space, take no offense :-(
 
