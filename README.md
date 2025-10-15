@@ -24,7 +24,7 @@ $${\color{green}hmph \space \color{lightgreen}... \space \space \color{green}goo
 
 ![](https://komarev.com/ghpvc/?username=dummyinbed&label=Final_Countdown&color=green&style=flat)
 
-[UP TO DATE PRONOUNSCC](https://pronouns.cc/@AngelWithoutwings)
+[PRONOUNSCC](https://pronouns.cc/@AngelWithoutwings) [STRAWPAGE up to date](https://2rings1pistol.straw.page/page1)
 [MAIN RENTRY](https://rentry.co/partygoer)
 
 <div align="center">
