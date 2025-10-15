@@ -15,7 +15,7 @@ $${\color{white}Debi  \space \color{white} darte  \space \color{white} mas  \spa
 
 ═══════════════════════════• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •═════════════════════════
 
-[Zuka](https://github.com/sspacedoutz)
+You can light your own, [Zuka](https://github.com/sspacedoutz)
 
 <div align="center">
 
@@ -30,11 +30,8 @@ $${\color{white}Debi  \space \color{white} darte  \space \color{white} mas  \spa
 
 <div align="center">
 
-[Strawpage](https://dayshiftatfreddyz.straw.page/) - [Pronounscc](https://pronouns.cc/@AngelWithoutwingsl) - [Roblox](https://www.roblox.com/users/1022725107/profile)
+[Roblox](https://www.roblox.com/users/1022725107/profile) - [ATABOOK](https://dummysblood.atabook.org/)
 <div align="center">
-
-
-[ATABOOK](https://dummysblood.atabook.org/) - [GUNSLOL](https://guns.lol/dummyinbed)
 <div align="center">
   
 ═══════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔════════════════
