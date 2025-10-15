@@ -8,7 +8,7 @@
 $${\color{red}Debi \space \color{red} tirar \space \color{red} mas  \space \color{red}fotos  \space \color{red},de  \space \color{red}cuando  \space \color{red}te \space \color{red}tuve{}}$$
 
 
-![image alt](https://media.discordapp.net/attachments/1028737434252488756/1423861578452963490/image.png?ex=68e1d9ee&is=68e0886e&hm=78b005268a305510984eb0560d9f54fafc244450df4de2205ef3b859ec0cd67c&=&format=webp&quality=lossless&width=1503&height=845)
+![image alt](https://pbs.twimg.com/media/GzkhdlZXUAES1yr?format=jpg&name=medium)
 <div align="center">
 
 $${\color{red}Debi  \space \color{red} darte  \space \color{red} mas  \space \color{red}besos   \space \color{red},de  \space \color{red}y   \space \color{red}abrazos  \space \color{red}las \space \color{red}veces   \space \color{red}que \space \color{red}que {}}$$
@@ -21,13 +21,11 @@ $${\color{red}Debi  \space \color{red} darte  \space \color{red} mas  \space \co
 
 ✦⋆𓆩✧𓆪⋆✦
 
-![](https://komarev.com/ghpvc/?username=dummyinbed&label=Final_Countdown&color=green&style=flat)
+![](https://komarev.com/ghpvc/?username=dummyinbed&label=VoidStars&color=red&style=flat)
 
 [PRONOUNSCC](https://pronouns.cc/@AngelWithoutwings) [STRAWPAGE up to date](https://2rings1pistol.straw.page/)
 
 <div align="center">
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=14&pause=1000&color=6AF744&width=435&lines=You're+The+Reason+I+play+A+Game+I'm+Doomed+To+Lose.;In+My+File's+We're+Still+Alive+%2C)](https://git.io/typing-svg)
 
 
 <div align="center">
