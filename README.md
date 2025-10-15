@@ -1,4 +1,5 @@
 
+
 <div align="center">
 
 
@@ -24,8 +25,7 @@ $${\color{green}hmph \space \color{lightgreen}... \space \space \color{green}goo
 
 ![](https://komarev.com/ghpvc/?username=dummyinbed&label=Final_Countdown&color=green&style=flat)
 
-[PRONOUNSCC](https://pronouns.cc/@AngelWithoutwings) [STRAWPAGE up to date](https://2rings1pistol.straw.page/page1)
-[MAIN RENTRY](https://rentry.co/partygoer)
+[PRONOUNSCC](https://pronouns.cc/@AngelWithoutwings) [STRAWPAGE up to date](https://2rings1pistol.straw.page/)
 
 <div align="center">
 
@@ -39,6 +39,10 @@ $${\color{green}hmph \space \color{lightgreen}... \space \space \color{green}goo
 
 
 [ATABOOK](https://dummysblood.atabook.org/) - [GUNSLOL](https://guns.lol/dummyinbed)
+<div align="center">
+  
+═══════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔════════════════
+
 <div align="center">
   
 ═══════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔════════════════
