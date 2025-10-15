@@ -11,7 +11,7 @@ $${\color{red}Debi \space \color{red} tirar \space \color{red} mas  \space \colo
 ![image alt](https://media.discordapp.net/attachments/1028737434252488756/1423861578452963490/image.png?ex=68e1d9ee&is=68e0886e&hm=78b005268a305510984eb0560d9f54fafc244450df4de2205ef3b859ec0cd67c&=&format=webp&quality=lossless&width=1503&height=845)
 <div align="center">
 
-$${\color{green}hmph \space \color{lightgreen}... \space \space \color{green}good \space \color{lightgreen}...{}}$$
+$${\color{red}Debi  \space \color{red} darte  \space \color{red} mas  \space \color{red}besos   \space \color{red},de  \space \color{red}y   \space \color{red}abrazos  \space \color{red}las \space \color{red}veces   \space \color{red}que \space \color{red}que {}}$$
 
 ═══════════════════════════• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •═════════════════════════
 
