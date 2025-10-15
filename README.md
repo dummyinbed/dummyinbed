@@ -5,7 +5,7 @@
 
 ═════════════════════════════════════════════════════════════════════════════════════
 
-$${\color{lightgreen}For \space \color{lightgreen} My \space \color{green} Last \space \color{lightgreen}Act \space \color{lightgreen},I \space \color{lightgreen}Love \space \color{red}You\space{}}$$
+$${\color{red}Debi \space \color{red} tirar \space \color{green} mas  \space \color{red}fotos  \space \color{red},de  \space \color{red}cuando  \space \color{red}te \space \color{red}tuve{}}$$
 
 
 ![image alt](https://media.discordapp.net/attachments/1028737434252488756/1423861578452963490/image.png?ex=68e1d9ee&is=68e0886e&hm=78b005268a305510984eb0560d9f54fafc244450df4de2205ef3b859ec0cd67c&=&format=webp&quality=lossless&width=1503&height=845)
