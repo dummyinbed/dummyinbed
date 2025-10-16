@@ -38,4 +38,5 @@ You can light your own, [Zuka](https://github.com/sspacedoutz)
 
 <div align="center">
 
-
+![](https://media.discordapp.net/attachments/1028737434252488756/1428507029672034426/image.png?ex=68f2c058&is=68f16ed8&hm=70131f84a24cf451be7d2d861025d3c6d2c3ee6cb068f54fe587a410ea31e87a&=&format=webp&quality=lossless&width=956&height=612)
+![](https://media.discordapp.net/attachments/1028737434252488756/1428507027243532378/image.png?ex=68f2c057&is=68f16ed7&hm=7068503f8de8208e1b46120886361778ab401845c5e289f366f1edec1af04ae9&=&format=webp&quality=lossless&width=769&height=794)
