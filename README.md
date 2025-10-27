@@ -36,7 +36,7 @@ You can light your own, [Zuka](https://github.com/sspacedoutz)
   
 ═══════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔════════════════
 
-<div align="center">
+Heiii I'm probably gonna be offline alot more and I doubt alot of people are even going to see this. No, I most likely wont be responding to any messages because I keep going through stages of isolating myself or wanting to distance myself from literally everybody, I am in a weirdly negative part of my life lately and I keep going in deep stages because of Adderall crashes, easily getting irritated, and possible depression.
+No, I would not like to talk about it, I have a VERY hard time opening up as much as I crave to. To the point where I don't even talk to my therapist about what happens -- But I do appreciate knowing that people are there/here for me. 😅
 
-![](https://media.discordapp.net/attachments/1028737434252488756/1428507029672034426/image.png?ex=68f2c058&is=68f16ed8&hm=70131f84a24cf451be7d2d861025d3c6d2c3ee6cb068f54fe587a410ea31e87a&=&format=webp&quality=lossless&width=956&height=612)
-![](https://media.discordapp.net/attachments/1028737434252488756/1428507027243532378/image.png?ex=68f2c057&is=68f16ed7&hm=7068503f8de8208e1b46120886361778ab401845c5e289f366f1edec1af04ae9&=&format=webp&quality=lossless&width=769&height=794)
+I know I sound like a horrible person to hang out with right now and I REALLY dont want to make anybody feel like they're walking on eggshells around me but I promise when I interact with anybody I act like I am perfectly fine so its really no difference other than my very long lack of response or wanting conversations. SORRY YALL.. I LOVE ALL OF YOU OOMFS ANED OTHERS,
