@@ -33,5 +33,3 @@ $${\color{white}Debi  \space \color{white} darte  \space \color{white} mas  \spa
 <div align="center">
   
 ═══════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔════════════════
-
-heiii moved it to my straw so it doesnt look like a clutter
