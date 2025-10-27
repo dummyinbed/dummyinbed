@@ -15,13 +15,11 @@ $${\color{white}Debi  \space \color{white} darte  \space \color{white} mas  \spa
 
 ═══════════════════════════• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •═════════════════════════
 
-You can light your own, [Zuka](https://github.com/sspacedoutz)
-
 <div align="center">
 
 ✦⋆𓆩✧𓆪⋆✦
 
-![](https://komarev.com/ghpvc/?username=dummyinbed&label=VoidStars&color=grey&style=flat)
+![](https://komarev.com/ghpvc/?username=dummyinbed&label=MYTHS&color=ff69b4&style=flat)
 
 [PRONOUNSCC](https://pronouns.cc/@AngelWithoutwings) [STRAWPAGE up to date](https://2rings1pistol.straw.page/)
 
