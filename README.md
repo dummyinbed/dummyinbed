@@ -21,7 +21,7 @@ $${\color{white}Debi  \space \color{white} darte  \space \color{white} mas  \spa
 
 ![](https://komarev.com/ghpvc/?username=dummyinbed&label=MYTHS&color=ff69b4&style=flat)
 
-[PRONOUNSCC](https://pronouns.cc/@AngelWithoutwings) [STRAWPAGE up to date](https://2rings1pistol.straw.page/)
+[PRONOUNSCC](https://pronouns.cc/@AngelWithoutwings)
 
 <div align="center">
 
