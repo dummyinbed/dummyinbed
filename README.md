@@ -32,4 +32,4 @@ $${\color{white}Debi  \space \color{white} darte  \space \color{white} mas  \spa
 <div align="center">
 <div align="center">
   
-═══════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔════════════════
+══════════════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔══════════════════════════
