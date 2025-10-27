@@ -8,7 +8,7 @@
 $${\color{white}Debi \space \color{white} tirar \space \color{white} mas  \space \color{white}fotos  \space \color{white},de  \space \color{white}cuando  \space \color{white}te \space \color{white}tuve{}}$$
 
 
-![image alt](https://pbs.twimg.com/media/Gx13jgYXkAAtWun?format=jpg&name=large)
+![image alt](https://media.discordapp.net/attachments/1028737434252488756/1432205050054316052/IMG_7708.jpg?ex=69003465&is=68fee2e5&hm=afbae3733be20ce2cfcb0b60cd1fc98b12f3bcd221b6d8dc66d2350e6a4eeee3&=&format=webp&width=846&height=846)
 <div align="center">
 
 $${\color{white}Debi  \space \color{white} darte  \space \color{white} mas  \space \color{white}besos   \space \color{white},de  \space \color{white}y   \space \color{white}abrazos  \space \color{white}las \space \color{white}veces   \space \color{white}que \space \color{white}que {}}$$
