@@ -34,5 +34,4 @@ $${\color{white}Why \space \color{white} Have \space \color{white} You  \space \
   
 ══════════════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔══════════════════════════
 
-![](https://media.discordapp.net/attachments/1028737434252488756/1435776275838013520/image-removebg-preview_1.png?ex=690d325b&is=690be0db&hm=3cc56405737f2d005f3d14d60e1f85b1335294e218352a6ffb87b03590e4a843&=&format=webp&quality=lossless&width=647&height=468)
 ![](https://media.discordapp.net/attachments/1028737434252488756/1435776664343941180/image-removebg-preview_2.png?ex=690d32b8&is=690be138&hm=6d29dff4b4b749c536cebea2ff0b8184282b640037ce9d146efd9b3220b02c4b&=&format=webp&quality=lossless&width=666&height=453)
