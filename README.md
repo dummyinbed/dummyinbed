@@ -28,7 +28,7 @@ $${\color{white}Why \space \color{white} Have \space \color{white} You  \space \
 
 <div align="center">
 
-[ROBLOX](https://www.roblox.com/users/1022725107/profile) ♡⸝⸝ [PT-REWARDS](https://github.com/pt-awards)
+ㅤ[ROBLOX](https://www.roblox.com/users/1022725107/profile) ♡⸝⸝ [PT-REWARDS](https://github.com/pt-awards)
 <div align="center">
 <div align="center">
   
