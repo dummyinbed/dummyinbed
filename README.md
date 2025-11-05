@@ -7,8 +7,8 @@
 
 $${\color{white}Father \space \color{white} Into \space \color{green} Your  \space \color{white}Hands  \space \color{white},I  \space \color{white}Commend  \space \color{white}My \space \color{white}Spirit \space \color{white}Father \space \color{white}Into  \space \color{white}Your \space \color{white}Hands{}}$$
 
+![](https://media.discordapp.net/attachments/1028737434252488756/1435777256197722142/image.png?ex=690d3345&is=690be1c5&hm=44ca9b6bcf536025b93553180c13dfe1a11fbc845400fe0e47e59be7d1c0542d&=&format=webp&quality=lossless&width=1195&height=846)
 
-![image alt](https://media.discordapp.net/attachments/1028737434252488756/1435770310249939096/image.png?ex=690d2ccd&is=690bdb4d&hm=83c2967db058b2a4f45589c2d964b0e623d76a5b4773dab48bef567bfe19be52&=&format=webp&quality=lossless&width=917&height=418)
 <div align="center">
 
 $${\color{white}Why \space \color{white} Have \space \color{white} You  \space \color{green}Forsaken  \space \color{white}me?  \space \color{white}In  \space \color{white}Your \space \color{white}Eyes \space \color{green}Forsaken \space \color{white}Me.  \space {}}$$
@@ -19,7 +19,7 @@ $${\color{white}Why \space \color{white} Have \space \color{white} You  \space \
 
 ✦⋆𓆩✧𓆪⋆✦
 
-![](https://komarev.com/ghpvc/?username=dummyinbed&label=LAST_MAN_STANDING&color=green&style=flat)
+![](https://komarev.com/ghpvc/?username=dummyinbed&label=LAST_MAN_STANDING&color=yellowgreen&style=flat)
 
 [PRONOUNSCC](https://pronouns.cc/@AngelWithoutwings)
 
@@ -34,4 +34,4 @@ $${\color{white}Why \space \color{white} Have \space \color{white} You  \space \
   
 ══════════════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔══════════════════════════
 
-![](https://media.discordapp.net/attachments/1028737434252488756/1435776664343941180/image-removebg-preview_2.png?ex=690d32b8&is=690be138&hm=6d29dff4b4b749c536cebea2ff0b8184282b640037ce9d146efd9b3220b02c4b&=&format=webp&quality=lossless&width=666&height=453)
+![image alt](https://media.discordapp.net/attachments/1028737434252488756/1435776275838013520/image-removebg-preview_1.png?ex=690d325b&is=690be0db&hm=3cc56405737f2d005f3d14d60e1f85b1335294e218352a6ffb87b03590e4a843&=&format=webp&quality=lossless&width=647&height=468)
