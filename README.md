@@ -21,14 +21,14 @@ $${\color{white}Why \space \color{white} Have \space \color{white} You  \space \
 
 ![](https://komarev.com/ghpvc/?username=dummyinbed&label=LAST_MAN_STANDING&color=yellowgreen&style=flat)
 
-[PRONOUNSCC](https://pronouns.cc/@AngelWithoutwings)
+[PRONOUNSCC](https://pronouns.cc/@AngelWithoutwings) 𝜗𝜚 [ATABOOK](https://dummysblood.atabook.org/) 
 
 <div align="center">
 
 
 <div align="center">
 
-[ROBLOX](https://www.roblox.com/users/1022725107/profile) - [ATABOOK](https://dummysblood.atabook.org/)
+[ROBLOX](https://www.roblox.com/users/1022725107/profile) ♡⸝⸝ [PT-REWARDS](https://github.com/pt-awards)
 <div align="center">
 <div align="center">
   
