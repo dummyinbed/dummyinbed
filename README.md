@@ -5,13 +5,13 @@
 
 ═════════════════════════════════════════════════════════════════════════════════════
 
-$${\color{white}Debi \space \color{white} tirar \space \color{white} mas  \space \color{white}fotos  \space \color{white},de  \space \color{white}cuando  \space \color{white}te \space \color{white}tuve{}}$$
+$${\color{white}Father \space \color{white} Into \space \color{green} Your  \space \color{white}Hands  \space \color{white},I  \space \color{white}Commend  \space \color{white}My \space \color{white}Spirit \space \color{white}Father \space \color{white}Into  \space \color{white}Your \space \color{white}Hands{}}$$
 
 
-![image alt](https://media.discordapp.net/attachments/1028737434252488756/1432209024186847252/IMG_7708-removebg-preview.png?ex=690a1b58&is=6908c9d8&hm=eaa63259f282b86311e2e50a6cbd6c18ba903043223ca9bfad202636bc790167&=&format=webp&quality=lossless&width=550&height=550)
+![image alt](https://media.discordapp.net/attachments/1028737434252488756/1435770310249939096/image.png?ex=690d2ccd&is=690bdb4d&hm=83c2967db058b2a4f45589c2d964b0e623d76a5b4773dab48bef567bfe19be52&=&format=webp&quality=lossless&width=917&height=418)
 <div align="center">
 
-$${\color{white}Debi  \space \color{white} darte  \space \color{white} mas  \space \color{white}besos   \space \color{white},de  \space \color{white}y   \space \color{white}abrazos  \space \color{white}las \space \color{white}veces   \space \color{white}que \space \color{white}que {}}$$
+$${\color{white}Why \space \color{white} Have \space \color{white} You  \space \color{green}Forsaken  \space \color{white}me?  \space \color{white}In  \space \color{white}Your \space \color{white}Eyes \space \color{green}Forsaken \space \color{white}Me.  \space {}}$$
 
 ═══════════════════════════• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •═════════════════════════
 
@@ -19,7 +19,7 @@ $${\color{white}Debi  \space \color{white} darte  \space \color{white} mas  \spa
 
 ✦⋆𓆩✧𓆪⋆✦
 
-![](https://komarev.com/ghpvc/?username=dummyinbed&label=MYTHS&color=ff69b4&style=flat)
+![](https://komarev.com/ghpvc/?username=dummyinbed&label=LAST_MAN_STANDING&color=green&style=flat)
 
 [PRONOUNSCC](https://pronouns.cc/@AngelWithoutwings)
 
@@ -33,3 +33,6 @@ $${\color{white}Debi  \space \color{white} darte  \space \color{white} mas  \spa
 <div align="center">
   
 ══════════════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔══════════════════════════
+
+![](https://media.discordapp.net/attachments/1028737434252488756/1435776275838013520/image-removebg-preview_1.png?ex=690d325b&is=690be0db&hm=3cc56405737f2d005f3d14d60e1f85b1335294e218352a6ffb87b03590e4a843&=&format=webp&quality=lossless&width=647&height=468)
+![](https://media.discordapp.net/attachments/1028737434252488756/1435776664343941180/image-removebg-preview_2.png?ex=690d32b8&is=690be138&hm=6d29dff4b4b749c536cebea2ff0b8184282b640037ce9d146efd9b3220b02c4b&=&format=webp&quality=lossless&width=666&height=453)
