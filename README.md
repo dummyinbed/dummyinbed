@@ -21,17 +21,20 @@ $${\color{white}Why \space \color{white} Have \space \color{white} You  \space \
 
 ![](https://komarev.com/ghpvc/?username=dummyinbed&label=LAST_MAN_STANDING&color=yellowgreen&style=flat)
 
-[PRONOUNSCC](https://pronouns.cc/@AngelWithoutwings) 𝜗𝜚 [ATABOOK](https://dummysblood.atabook.org/) 
+[𝘗𝘙𝘖𝘕𝘖𝘜𝘕𝘚𝘊𝘊](https://pronouns.cc/@AngelWithoutwings) 𝜗𝜚 [𝘈𝘛𝘈𝘉𝘖𝘖𝘒](https://dummysblood.atabook.org/) 
 
 <div align="center">
 
 
 <div align="center">
 
-ㅤ[ROBLOX](https://www.roblox.com/users/1022725107/profile) ♡⸝⸝ [PT-REWARDS](https://github.com/pt-awards)
+ㅤ[𝘙𝘖𝘉𝘓𝘖𝘟](https://www.roblox.com/users/1022725107/profile) ♡⸝⸝ [𝘗𝘛-𝘙𝘌𝘞𝘈𝘙𝘋𝘚](https://github.com/pt-awards)
 <div align="center">
 <div align="center">
   
 ══════════════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔══════════════════════════
 
 ![image alt](https://media.discordapp.net/attachments/1028737434252488756/1435776275838013520/image-removebg-preview_1.png?ex=690d325b&is=690be0db&hm=3cc56405737f2d005f3d14d60e1f85b1335294e218352a6ffb87b03590e4a843&=&format=webp&quality=lossless&width=647&height=468)
+
+𝘏𝘦𝘭𝘭𝘰 [𝘈𝘶𝘣𝘳𝘦𝘦,,♡](https://github.com/sspacedoutz) !
+ 
