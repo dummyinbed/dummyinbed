@@ -1,40 +1,60 @@
+<div align="center">
+special mentions
+  
+[Wumble](https://github.com/tirgery123) ♡ [Leli](https://github.com/pizzaxleliw) ✦ [Wemmbu](https://github.com/IHASAFACE-LULZ) ♡ [Parrot](https://github.com/directoryuser1) ✦
 
+might add more umm but we have to be close friends sorrriii :3
+  ═════════════════════════════════════════════════════════════════════════════════════
+
+$${\color{white}Strangers \space \color{white} In \space \color{white} The  \space \color{white}Night{}}$$
+
+![](https://github.com/CaptainSweeper/dummyinbed/blob/74e4614d57ad4ca304bac73b22d3a99e9c4cc333/G8FFKR3WgAActXj.png)
 
 <div align="center">
 
+$${\color{white}Two \space \color{white}Lonely \space \color{white} People,  \space \color{white}We  \space \color{white}\space \color{white}Were \space \color{white}Strangers \space \color{white}In \space \color{white}The \space \color{white}Night{}}$$
 
-═════════════════════════════════════════════════════════════════════════════════════
+--
 
-$${\color{white}Father \space \color{white} Into \space \color{green} Your  \space \color{white}Hands  \space \color{white},I  \space \color{white}Commend  \space \color{white}My \space \color{white}Spirit \space \color{white}Father \space \color{white}Into  \space \color{white}Your \space \color{white}Hands{}}$$
+$${\color{white}Lovers \space \color{white}At \space \color{white} First  \space \color{white} \space \color{white}Sight, \space \color{white}In \space \color{white}Love\color{white}Fover \color{white}"{}}$$
 
-![](https://media.discordapp.net/attachments/1028737434252488756/1435777256197722142/image.png?ex=690d3345&is=690be1c5&hm=44ca9b6bcf536025b93553180c13dfe1a11fbc845400fe0e47e59be7d1c0542d&=&format=webp&quality=lossless&width=1195&height=846)
 
-<div align="center">
-
-$${\color{white}Why \space \color{white} Have \space \color{white} You  \space \color{green}Forsaken  \space \color{white}me?  \space \color{white}In  \space \color{white}Your \space \color{white}Eyes \space \color{green}Forsaken \space \color{white}Me.  \space {}}$$
 
 ═══════════════════════════• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •═════════════════════════
 
+ORIGINALLY AS: @dummyinbed ,, or PrinceWemmbu 
 <div align="center">
+
+[𝘞𝘦𝘮𝘮𝘣𝘶](https://github.com/IHASAFACE-LULZ)
 
 ✦⋆𓆩✧𓆪⋆✦
 
-![](https://komarev.com/ghpvc/?username=dummyinbed&label=LAST_MAN_STANDING&color=yellowgreen&style=flat)
+![](https://komarev.com/ghpvc/?username=dummyinbed&label=Regections&color=blue&style=flat)
 
-[𝘗𝘙𝘖𝘕𝘖𝘜𝘕𝘚𝘊𝘊](https://pronouns.cc/@AngelWithoutwings) 𝜗𝜚 [𝘈𝘛𝘈𝘉𝘖𝘖𝘒](https://dummysblood.atabook.org/) 
+IC: pizzaxleliw
+
+<img width="359" height="321" alt="image" src="https://github.com/user-attachments/assets/5628c8c4-b5b7-4f84-9dcc-10bd5fe6833b" />
+
+drawing of me and [wumble](https://github.com/tirgery123) by [leli](https://github.com/pizzaxleliw)
+
+
+[𝘚𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://zegected.straw.page/) 𝜗𝜚 [𝘈𝘛𝘈𝘉𝘖𝘖𝘒](https://dummysblood.atabook.org/) 
 
 <div align="center">
 
 
 <div align="center">
 
-ㅤ[𝘙𝘖𝘉𝘓𝘖𝘟](https://www.roblox.com/users/1022725107/profile) ♡⸝⸝ [𝘗𝘛-𝘙𝘌𝘞𝘈𝘙𝘋𝘚](https://github.com/pt-awards)
+ㅤ[𝘗𝘳𝘰𝘯𝘰𝘶𝘯𝘴𝘊𝘊](https://pronouns.cc/@AngelWithoutwings) ♡⸝⸝ [𝘗𝘛-𝘙𝘌𝘞𝘈𝘙𝘋𝘚](https://github.com/pt-awards)
 <div align="center">
 <div align="center">
   
 ══════════════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔══════════════════════════
 
-![image alt](https://media.discordapp.net/attachments/1028737434252488756/1435776275838013520/image-removebg-preview_1.png?ex=690d325b&is=690be0db&hm=3cc56405737f2d005f3d14d60e1f85b1335294e218352a6ffb87b03590e4a843&=&format=webp&quality=lossless&width=647&height=468)
+does that mean i can headcanon ur prns - random straw message
 
-𝘏𝘦𝘭𝘭𝘰 [𝘈𝘶𝘣𝘳𝘦𝘦,,♡](https://github.com/sspacedoutz) !
- 
+yes of course call me what u'd like twin
+
+
+
+![](https://github.com/CaptainSweeper/dummyinbed/blob/74e4614d57ad4ca304bac73b22d3a99e9c4cc333/G8n12sAWkAENqGJ.jfif)
