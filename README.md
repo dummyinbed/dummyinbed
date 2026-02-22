@@ -3,7 +3,7 @@ special mentions
   
 [Wumble](https://github.com/tirgery123) ♡ [Leli](https://github.com/pizzaxleliw) ✦ [Wemmbu](https://github.com/IHASAFACE-LULZ) ♡ [Parrot](https://github.com/directoryuser1) ✦
 
-might add more umm but we have to be close friends sorrriii :3
+my social are outdated and neither are my names up to date so just ask me for info or smth
   ═════════════════════════════════════════════════════════════════════════════════════
 
 $${\color{white}Strangers \space \color{white} In \space \color{white} The  \space \color{white}Night{}}$$
