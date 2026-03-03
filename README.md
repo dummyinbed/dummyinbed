@@ -1,7 +1,7 @@
 <div align="center">
 special mentions
   
-[Wumble](https://github.com/tirgery123) ♡ [Leli](https://github.com/pizzaxleliw) ✦ [Dirk](https://github.com/f3xabuse)
+[Wumble](https://github.com/tirgery123) ✦ [Leli](https://github.com/pizzaxleliw) ✦ [Dirk](https://github.com/f3xabuse) ✦
 
 
 More to be added, needs fix -- my social are outdated and neither are my names up to date so just ask me for info or smth
