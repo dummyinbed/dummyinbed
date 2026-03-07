@@ -38,4 +38,6 @@ drawing of me and [wumble](https://github.com/tirgery123) by [leli](https://gith
   
 ══════════════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔══════════════════════════
 
-![](https://github.com/dummyinbed/dummyinbed/blob/6f702a2ff6f29b76ec6342097c5afc84e6057acb/IMG_6186.png) ![](https://github.com/dummyinbed/dummyinbed/blob/6f702a2ff6f29b76ec6342097c5afc84e6057acb/IMG_6184.jpeg) ![](https://github.com/dummyinbed/dummyinbed/blob/6f702a2ff6f29b76ec6342097c5afc84e6057acb/IMG_6185.png)
+![](https://github.com/dummyinbed/dummyinbed/blob/439ff1344940ff452963a5d22b82ab0964f5d245/IMG_6191.png)
+
+me cam and wumble
