@@ -1,24 +1,12 @@
 <div align="center">
-special mentions
   
 [Wumble](https://github.com/tirgery123) ✦ [Leli](https://github.com/pizzaxleliw) ✦ [Dirk](https://github.com/f3xabuse) ✦ [Wem](https://github.com/IHASAFACE-LULZ)
 
   ═════════════════════════════════════════════════════════════════════════════════════
 
-$${\color{white}Strangers \space \color{white} In \space \color{white} The  \space \color{white}Night{}}$$
-
-![](https://github.com/CaptainSweeper/dummyinbed/blob/74e4614d57ad4ca304bac73b22d3a99e9c4cc333/G8FFKR3WgAActXj.png)
+![](https://github.com/dummyinbed/dummyinbed/blob/6f702a2ff6f29b76ec6342097c5afc84e6057acb/IMG_6177.jpeg)
 
 <div align="center">
-
-$${\color{white}Two \space \color{white}Lonely \space \color{white} People,  \space \color{white}We  \space \color{white}\space \color{white}Were \space \color{white}Strangers \space \color{white}In \space \color{white}The \space \color{white}Night{}}$$
-
---
-
-$${\color{white}Lovers \space \color{white}At \space \color{white} First  \space \color{white} \space \color{white}Sight, \space \color{white}In \space \color{white}Love\color{white}Fover \color{white}"{}}$$
-
-
-
 ═══════════════════════════• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •═════════════════════════
 
 ORIGINALLY AS: @dummyinbed ,, or PrinceWemmbu 
@@ -50,10 +38,4 @@ drawing of me and [wumble](https://github.com/tirgery123) by [leli](https://gith
   
 ══════════════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔══════════════════════════
 
-does that mean i can headcanon ur prns - random straw message
-
-yes of course call me what u'd like twin
-
-
-
-![](https://github.com/CaptainSweeper/dummyinbed/blob/74e4614d57ad4ca304bac73b22d3a99e9c4cc333/G8n12sAWkAENqGJ.jfif)
+![](https://github.com/dummyinbed/dummyinbed/blob/6f702a2ff6f29b76ec6342097c5afc84e6057acb/IMG_6186.png) ![](https://github.com/dummyinbed/dummyinbed/blob/6f702a2ff6f29b76ec6342097c5afc84e6057acb/IMG_6184.jpeg) ![](https://github.com/dummyinbed/dummyinbed/blob/6f702a2ff6f29b76ec6342097c5afc84e6057acb/IMG_6185.png)
