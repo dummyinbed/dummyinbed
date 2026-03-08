@@ -25,7 +25,7 @@ IC: pizzaxleliw
 drawing of me and [wumble](https://github.com/tirgery123) by [leli](https://github.com/pizzaxleliw)
 
 
-[𝘚𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://zegected.straw.page/) 𝜗𝜚 [𝘈𝘛𝘈𝘉𝘖𝘖𝘒](https://dummysblood.atabook.org/) 
+[𝘚𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://bemyvalengect.straw.page/) 𝜗𝜚 [𝘈𝘛𝘈𝘉𝘖𝘖𝘒](https://dummysblood.atabook.org/) 
 
 <div align="center">
 
