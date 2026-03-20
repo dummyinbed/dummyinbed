@@ -47,7 +47,7 @@ ORIGINALLY AS: @dummyinbed ,, or PrinceWemmbu
 </p>
 </details> 
 
-<details><summary>$${\color{#CBC3E3} \space Special\space Names \ !}$$ </summary><p>
+<details><summary>$${\color{#CBC3E3} \space My\space Names \ !}$$ </summary><p>
 <p>
 
 * Doom(bringer)
