@@ -1,43 +1,50 @@
 <div align="center">
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=&weight=100&size=17&pause=1000&color=AE2D2D&multiline=true&width=435&lines=It+Was+Always+About+You%2C;Until++I+lost+you%2C+My+love.)](https://git.io/typing-svg)
   
-[Wumble](https://github.com/tirgery123) ✦ [Leli](https://github.com/pizzaxleliw) ✦ [Dirk](https://github.com/f3xabuse) ✦ [Wem](https://github.com/IHASAFACE-LULZ)
-
-  ═════════════════════════════════════════════════════════════════════════════════════
-
-![](https://github.com/dummyinbed/dummyinbed/blob/6f702a2ff6f29b76ec6342097c5afc84e6057acb/IMG_6177.jpeg)
+![](https://github.com/dummyinbed/dummyinbed/blob/bdd0a4344016a6b2ad0bacc4ec37c6326f4a5767/3fc9ba9b06f8ad12dddf459568b490ab.png)
 
 <div align="center">
-═══════════════════════════• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •═════════════════════════
+
+<details><summary>$${\color{#FFB6C1} \space Grace\space Layout \space !}$$ </summary><p>
+<div align="center">
+
+![](https://github.com/dummyinbed/dummyinbed/blob/fc8d323c611fdee209856aa3e0f6c217687391a6/b8907ea70a1c041caed91e4d6cdafabe-removebg-preview.png)
+
+<div align="center">
+
+♡ [0.1](https://bemyvalengect.straw.page/) ♡ [0.2](https://dummysblood.atabook.org/) ♡ [0.3](https://www.roblox.com/users/1022725107/profile)
+<div align="center">
+
+![](https://komarev.com/ghpvc/?username=dummyinbed&label=Regections&color=FFC0CB&style=flat)
+<div align="center">
 
 ORIGINALLY AS: @dummyinbed ,, or PrinceWemmbu 
-<div align="center">
 
-[𝘞𝘦𝘮𝘮𝘣𝘶](https://github.com/IHASAFACE-LULZ)
+</p>
+</details> 
 
-✦⋆𓆩✧𓆪⋆✦
+<details><summary>$${\color{#FFD700} \space Regect\space Layout \space !}$$ </summary><p>
 
-![](https://komarev.com/ghpvc/?username=dummyinbed&label=Regections&color=blue&style=flat)
+![](https://github.com/dummyinbed/dummyinbed/blob/de6c1b9706a33325d7fa12e6248302ed26b6669a/IMG_3491.jpg)
 
-IC: pizzaxleliw
-
-<img width="359" height="321" alt="image" src="https://github.com/user-attachments/assets/5628c8c4-b5b7-4f84-9dcc-10bd5fe6833b" />
-
-drawing of me and [wumble](https://github.com/tirgery123) by [leli](https://github.com/pizzaxleliw)
+⤷ [0.1](https://bemyvalengect.straw.page/) ♡ [0.2](https://dummysblood.atabook.org/) ♡ [0.3](https://www.roblox.com/users/1022725107/profile) ⸝⸝
 
 
-[𝘚𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://bemyvalengect.straw.page/) 𝜗𝜚 [𝘈𝘛𝘈𝘉𝘖𝘖𝘒](https://dummysblood.atabook.org/) 
+![](https://komarev.com/ghpvc/?username=dummyinbed&label=Regections&color=red&style=flat)
 
-<div align="center">
+ORIGINALLY AS: @dummyinbed ,, or PrinceWemmbu 
 
+</p>
+</details> 
 
-<div align="center">
+<details><summary>$${\color{#90EE90} \space Special\space Mentions\space !}$$ </summary><p>
 
-ㅤ[𝘗𝘳𝘰𝘯𝘰𝘶𝘯𝘴𝘊𝘊](https://pronouns.cc/@AngelWithoutwings) ♡⸝⸝ [𝘗𝘛-𝘙𝘌𝘞𝘈𝘙𝘋𝘚](https://github.com/pt-awards)
-<div align="center">
-<div align="center">
-  
-══════════════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔══════════════════════════
+[Wumble](https://github.com/tirgery123) ✦ [Cam](https://github.com/pizzaxleliw) ✦ [Devesto](https://github.com/f3xabuse) ✦
 
-![](https://github.com/dummyinbed/dummyinbed/blob/439ff1344940ff452963a5d22b82ab0964f5d245/IMG_6191.png)
+[Akou](https://github.com/akchouu) ✦ [Itrapped](https://github.com/iTrapped2012) ✦ [Wemmbu](https://github.com/IHASAFACE-LULZ) ✦
 
-me cam and wumble
+</p>
+</details> 
+
+$${\color{red}Recommended \space \color{red}To \space \color{red} Close  \space \color{red} \space \color{red}Dropdowns \space \color{red}Before \space \color{red}Opening\color{red}Another. \color{red}{}}$$
