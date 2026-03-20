@@ -47,4 +47,17 @@ ORIGINALLY AS: @dummyinbed ,, or PrinceWemmbu
 </p>
 </details> 
 
+<details><summary>$${\color{#CBC3E3} \space Special\space Names \ !}$$ </summary><p>
+<p>
+
+* Doom(bringer)
+* Mime (Or nickname mimi)
+* Z(e)
+* Regect
+* Au79
+* Dummy
+
+</p>
+</details> 
+
 $${\color{red}Recommended \space \color{red}To \space \color{red} Close  \space \color{red} \space \color{red}Dropdowns \space \color{red}Before \space \color{red}Opening\color{red}Another. \color{red}{}}$$
