@@ -1,5 +1,4 @@
-Hi whoever had left a message on my straw about  someone who is problematic,, please contact me @adore_x on discord, or continue messaging me through my straw please.
-
+I don't exactly know how to go about this, but will see what I can do. Thank you for letting me know, I appreciate it.
 <div align="center">
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=&weight=100&size=17&pause=1000&color=AE2D2D&multiline=true&width=435&lines=It+Was+Always+About+You%2C;Until++I+lost+you%2C+My+love.)](https://git.io/typing-svg)
