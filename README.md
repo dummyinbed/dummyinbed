@@ -54,11 +54,13 @@ ORIGINALLY AS: @dummyinbed ,, or PrinceWemmbu
 <p>
 
 * Doom(bringer)
-* Mime (Or nickname mimi)
 * Z(e)
 * Regect
+* Dozer
+* Mime (Or nickname mimi)
 * Au79
 * Dummy
+
 
 </p>
 </details> 
