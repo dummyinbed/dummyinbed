@@ -42,7 +42,7 @@ ORIGINALLY AS: @dummyinbed ,, or PrinceWemmbu
 
 <details><summary>$${\color{#90EE90} \space Special\space Mentions\space !}$$ </summary><p>
 
-[Wumble](https://github.com/tirgery123) ✦ [Cam](https://github.com/pizzaxleliw) ✦ [Devesto](https://github.com/f3xabuse) ✦
+[Wumble](https://github.com/tirgery123) ✦ [Cam](https://github.com/pizzaxleliw) ✦ [Devesto](timaeusTT ) ✦
 
 [Akou](https://github.com/akchouu) ✦ [Itrapped](https://github.com/iTrapped2012) ✦ [Wemmbu](https://github.com/IHASAFACE-LULZ) ✦
 
