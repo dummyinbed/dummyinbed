@@ -15,7 +15,7 @@
 
 <div align="center">
 
-♡ [0.1](https://bemyvalengect.straw.page/) ♡ [0.2](https://dummysblood.atabook.org/) ♡ [0.3](https://www.roblox.com/users/1022725107/profile)
+♡ [0.1](https://bemyvalengect.straw.page/) ♡ [0.2](https://dummysblood.atabook.org/) ♡ [0.3](https://www.roblox.com/users/1022725107/profile) ♡ [0.4](https://pronouns.cc/@DummyInBed)  ⸝⸝
 <div align="center">
 
 ![](https://komarev.com/ghpvc/?username=dummyinbed&label=Regections&color=FFC0CB&style=flat)
@@ -30,7 +30,7 @@ ORIGINALLY AS: @dummyinbed ,, or PrinceWemmbu
 
 ![](https://github.com/dummyinbed/dummyinbed/blob/de6c1b9706a33325d7fa12e6248302ed26b6669a/IMG_3491.jpg)
 
-⤷ [0.1](https://bemyvalengect.straw.page/) ♡ [0.2](https://dummysblood.atabook.org/) ♡ [0.3](https://www.roblox.com/users/1022725107/profile) ⸝⸝
+⤷ [0.1](https://bemyvalengect.straw.page/) ♡ [0.2](https://dummysblood.atabook.org/) ♡ [0.3](https://www.roblox.com/users/1022725107/profile) ♡ [0.4](https://pronouns.cc/@DummyInBed)  ⸝⸝
 
 
 ![](https://komarev.com/ghpvc/?username=dummyinbed&label=Regections&color=red&style=flat)
