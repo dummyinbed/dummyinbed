@@ -6,10 +6,12 @@
   
 ![](https://github.com/dummyinbed/dummyinbed/blob/bdd0a4344016a6b2ad0bacc4ec37c6326f4a5767/3fc9ba9b06f8ad12dddf459568b490ab.png)
 
+
 <div align="center">
 
 <details><summary>$${\color{#FFB6C1} \space Grace\space Layout \space !}$$ </summary><p>
 <div align="center">
+
 
 ![](https://github.com/dummyinbed/dummyinbed/blob/fc8d323c611fdee209856aa3e0f6c217687391a6/b8907ea70a1c041caed91e4d6cdafabe-removebg-preview.png)
 
@@ -65,3 +67,6 @@ ORIGINALLY AS: @dummyinbed ,, or PrinceWemmbu
 </details> 
 
 $${\color{red}Recommended \space \color{red}To \space \color{red} Close  \space \color{red} \space \color{red}Dropdowns \space \color{red}Before \space \color{red}Opening\color{red}Another. \color{red}{}}$$
+
+𝘿𝙤 𝙉𝙊𝙏 𝙩𝙖𝙠𝙚 𝙖𝙣𝙮 𝙞𝙣𝙨𝙥𝙞𝙧𝙖𝙩𝙞𝙤𝙣 𝙛𝙧𝙤𝙢 𝙢𝙮 𝙨𝙠𝙞𝙣𝙨 𝙤𝙧 𝙨𝙤𝙘𝙞𝙖𝙡𝙨, 𝙞𝙛 𝙮𝙤𝙪 𝙬𝙤𝙪𝙡𝙙 𝙡𝙞𝙠𝙚 𝙩𝙤, 𝙥𝙡𝙚𝙖𝙨𝙚 𝙖𝙨𝙠 𝙢𝙚 𝙛𝙤𝙧 𝙥𝙚𝙧𝙢𝙞𝙨𝙨𝙞𝙤𝙣.
+
