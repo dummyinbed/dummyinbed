@@ -8,7 +8,7 @@
 <div align="center">
 
 
-<details><summary>$${\color{#90EE90} \space Special\space Mentions\space }$$ </summary><p>
+<details><summary>$${\color{#137951} \space Special\space Mentions\space }$$ </summary><p>
 
 [Wumble](https://github.com/tirgery123) ✦ [Wemmbu](https://github.com/timaeusTT) ✦ [Prettyvoisen](https://github.com/yvoisen) ✦
 
@@ -22,9 +22,11 @@
 </p>
 </details> 
 
-<details><summary>$${\color{#CBC3E3} \space My\space Sona \ }$$ </summary><p>
+<details><summary>$${\color{#71250E} \space My\space Sona \ }$$ </summary><p>
 <p>
 
 <img width="600" height="500" alt="image0" src="https://github.com/user-attachments/assets/edc95ec2-f2e3-4532-adc4-5cf88979f1d7" /> <img width="300" height="500" alt="image" src="https://github.com/user-attachments/assets/2a1b4fe4-b7aa-4aae-8f08-cab5faf1513f" />
+<img width="600" height="500" alt="image" src="https://github.com/user-attachments/assets/214c6392-ec2d-42ae-a9d7-ba414f0176b2" /> <img width="600" height="500" alt="image" src="https://github.com/user-attachments/assets/56aa1992-8818-4a00-abb6-5968e9b7a049" />
+
 
 
