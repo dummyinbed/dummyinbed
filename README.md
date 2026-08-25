@@ -1,72 +1,29 @@
 <div align="center">
-
-<div align="center">
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=&weight=100&size=17&pause=1000&color=AE2D2D&multiline=true&width=435&lines=It+Was+Always+About+You%2C;Until++I+lost+you%2C+My+love.)](https://git.io/typing-svg)
   
-![](https://github.com/dummyinbed/dummyinbed/blob/bdd0a4344016a6b2ad0bacc4ec37c6326f4a5767/3fc9ba9b06f8ad12dddf459568b490ab.png)
+<img width="600" height="500" alt="sona" src="https://github.com/user-attachments/assets/ce5b43d9-ffd8-4351-82de-cf88f8ccf261" />
+
+![](https://komarev.com/ghpvc/?username=dummyinbed&label=bludz&color=blue&style=flat)
 
 
 <div align="center">
 
-<details><summary>$${\color{#FFB6C1} \space Grace\space Layout \space !}$$ </summary><p>
+
+<details><summary>$${\color{#90EE90} \space Special\space Mentions\space }$$ </summary><p>
+
+[Wumble](https://github.com/tirgery123) ✦ [Wemmbu](https://github.com/timaeusTT) ✦ [Prettyvoisen](https://github.com/yvoisen) ✦
+
+[TV](https://github.com/timaeusTT) ✦ [Tessie](https://github.com/piehiker) ✦ [Fatteo](https://github.com/6ullets) ✦
+
+[trophy](https://github.com/ponychievements) - [nominations](https://ponytownnominee.straw.page/wk) - [pt-walk-of-fame](https://github.com/pt-walk-of-fame) - [compliment town](https://github.com/compliment-town) - [pt players](https://github.com/pt-players) - [title town](https://github.com/title-town)
+
+
 <div align="center">
-
-
-![](https://github.com/dummyinbed/dummyinbed/blob/fc8d323c611fdee209856aa3e0f6c217687391a6/b8907ea70a1c041caed91e4d6cdafabe-removebg-preview.png)
-
-<div align="center">
-
-♡ [0.1](https://bemyvalengect.straw.page/) ♡ [0.2](https://dummysblood.atabook.org/) ♡ [0.3](https://www.roblox.com/users/1022725107/profile) ♡ [0.4](https://pronouns.cc/@DummyInBed)  ⸝⸝
-<div align="center">
-
-![](https://komarev.com/ghpvc/?username=dummyinbed&label=Regections&color=FFC0CB&style=flat)
-<div align="center">
-
-ORIGINALLY AS: @dummyinbed ,, or PrinceWemmbu 
 
 </p>
 </details> 
 
-<details><summary>$${\color{#FFD700} \space Regect\space Layout \space !}$$ </summary><p>
-
-![](https://github.com/dummyinbed/dummyinbed/blob/de6c1b9706a33325d7fa12e6248302ed26b6669a/IMG_3491.jpg)
-
-⤷ [0.1](https://bemyvalengect.straw.page/) ♡ [0.2](https://dummysblood.atabook.org/) ♡ [0.3](https://www.roblox.com/users/1022725107/profile) ♡ [0.4](https://pronouns.cc/@DummyInBed)  ⸝⸝
-
-
-![](https://komarev.com/ghpvc/?username=dummyinbed&label=Regections&color=red&style=flat)
-
-ORIGINALLY AS: @dummyinbed ,, or PrinceWemmbu 
-
-</p>
-</details> 
-
-<details><summary>$${\color{#90EE90} \space Special\space Mentions\space !}$$ </summary><p>
-
-[Wumble](https://github.com/tirgery123) ✦ [Cam](https://github.com/pizzaxleliw) ✦ [Devesto](timaeusTT ) ✦
-
-[Akou](https://github.com/akchouu) ✦ [Itrapped](https://github.com/iTrapped2012) ✦ [Wemmbu](https://github.com/IHASAFACE-LULZ) ✦
-
-</p>
-</details> 
-
-<details><summary>$${\color{#CBC3E3} \space My\space Names \ !}$$ </summary><p>
+<details><summary>$${\color{#CBC3E3} \space My\space Sona \ }$$ </summary><p>
 <p>
 
-* Doom(bringer)
-* Z(e)
-* Regect
-* Dozer
-* Mime (Or nickname mimi)
-* Au79
-* Dummy
-
-
-</p>
-</details> 
-
-$${\color{red}Recommended \space \color{red}To \space \color{red} Close  \space \color{red} \space \color{red}Dropdowns \space \color{red}Before \space \color{red}Opening\color{red}Another. \color{red}{}}$$
-
-𝘿𝙤 𝙉𝙊𝙏 𝙩𝙖𝙠𝙚 𝙖𝙣𝙮 𝙞𝙣𝙨𝙥𝙞𝙧𝙖𝙩𝙞𝙤𝙣 𝙛𝙧𝙤𝙢 𝙢𝙮 𝙨𝙠𝙞𝙣𝙨 𝙤𝙧 𝙨𝙤𝙘𝙞𝙖𝙡𝙨, 𝙞𝙛 𝙮𝙤𝙪 𝙬𝙤𝙪𝙡𝙙 𝙡𝙞𝙠𝙚 𝙩𝙤, 𝙥𝙡𝙚𝙖𝙨𝙚 𝙖𝙨𝙠 𝙢𝙚 𝙛𝙤𝙧 𝙥𝙚𝙧𝙢𝙞𝙨𝙨𝙞𝙤𝙣.
+<img width="600" height="500" alt="image0" src="https://github.com/user-attachments/assets/edc95ec2-f2e3-4532-adc4-5cf88979f1d7" />
 
