@@ -25,5 +25,6 @@
 <details><summary>$${\color{#CBC3E3} \space My\space Sona \ }$$ </summary><p>
 <p>
 
-<img width="600" height="500" alt="image0" src="https://github.com/user-attachments/assets/edc95ec2-f2e3-4532-adc4-5cf88979f1d7" />
+<img width="600" height="500" alt="image0" src="https://github.com/user-attachments/assets/edc95ec2-f2e3-4532-adc4-5cf88979f1d7" /> <img width="300" height="500" alt="image" src="https://github.com/user-attachments/assets/2a1b4fe4-b7aa-4aae-8f08-cab5faf1513f" />
+
 
