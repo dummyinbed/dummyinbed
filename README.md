@@ -1,6 +1,8 @@
 <div align="center">
 
 September is suicide prevention month, call or text 988 for Suicide hotline. You are loved
+
+preferably refer to me as zam, please stop calling me sharp he got cancelled LOL. Thx
   
 <img width="600" height="500" alt="sona" src="https://github.com/user-attachments/assets/ce5b43d9-ffd8-4351-82de-cf88f8ccf261" />
 
