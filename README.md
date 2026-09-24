@@ -1,4 +1,4 @@
-<img src="https://github.com/dummyinbed/dummyinbed/blob/8f96cccf9a1e5ce5db918f690e83f8d679b926f0/fghgjfghfghfghf.png" align="left" width="430px">ㅤㅤㅤㅤㅤㅤㅤㅤ
+<img src="https://github.com/dummyinbed/dummyinbed/blob/8f96cccf9a1e5ce5db918f690e83f8d679b926f0/fghgjfghfghfghf.png" align="left" width="300px">ㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ㅤㅤㅤㅤ<br>${\text{\color{#d16ba5} When　\color{#c777b9} you　\color{#ba83ca} made　\color{#aa8fd8} up　\color{#9a9ae1} a　\color{#8aa7ec} version　\color{#79b3f4} of　\color{#69bff8} me　\color{#52cffe} you　\color{#41dfff}  thought 　\color{#46eefa} You'd love◞}}$ <br>
 
