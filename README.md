@@ -3,7 +3,7 @@
 ㅤㅤㅤㅤ<br>${\text{\color{#d16ba5} You　\color{#c777b9} took　\color{#ba83ca} a　\color{#aa8fd8} star　\color{#9a9ae1} to　\color{#8aa7ec} bed◞　\color{#79b3f4} Woke　\color{#69bff8} up　\color{#52cffe} with　\color{#41dfff}  me 　\color{#46eefa} instead}}$ <br>
 ${\text{\color{#ba83ca} You　\color{#aa8fd8} Must　\color{#9a9ae1} Have　\color{#8aa7ec} felt　\color{#79b3f4} so　\color{#69bff8} damn　\color{#52cffe} deceived}}$ <br>
 
-<img src="https://github.com/dummyinbed/dummyinbed/blob/90236e5c6c718521f2f086eec1f3661cae72945c/IMG_5197__fliter--cherry-icecream__channel--all__mode--overlay.png" align="middle" width="560"> ㅤㅤㅤㅤㅤㅤ<br>
+<img src="https://github.com/dummyinbed/dummyinbed/blob/90236e5c6c718521f2f086eec1f3661cae72945c/IMG_5197__fliter--cherry-icecream__channel--all__mode--overlay.png" align="middle" width="200"> ㅤㅤㅤㅤㅤㅤ<br>
 ${\text{\color{#ba83ca} You　\color{#aa8fd8} Must　\color{#9a9ae1} Have　\color{#8aa7ec} felt　\color{#79b3f4} so　\color{#69bff8} damn　\color{#52cffe} deceived}}$ <br>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
